@@ -1,2 +1,8 @@
 # hello-world
-just a step
+
+
+assalam alikm (pease be upon you)
+
+
+and thank you for reading
+
